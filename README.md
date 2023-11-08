@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZSTFLBJ
-- 📫 How to reach me oscar0724oscar@gmail.com
+- 📫 How to reach me oscar0624oscar@gmail.com
 - instagram:@0624_lbj
 
 <!---
